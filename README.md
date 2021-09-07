@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Bwarwar
-- 👀 I’m interested in 'domail'writing
+- 👀 I’m interested in 'domain' writing.
 - 🌱 I’m currently learning 'essentials'
 - 💞️ I’m looking to collaborate on applicability
 - 📫 How to reach me badea_warwar@hotmail.com
