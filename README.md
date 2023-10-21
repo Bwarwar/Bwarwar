@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Bwarwar
 - 👀 I’m interested in 'domain' writing.
 - 🌱 I’m currently learning 'essentials'
-- 💞️ I’m looking to collaborate on applicability
+- 💞️ I’m looking  hash out applicability
 - 📫 How to reach me badea_warwar@hotmail.com
 
 <!---
